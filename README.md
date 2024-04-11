@@ -1,3 +1,3 @@
-### I'm not happy with 500 hours of CS: Source
+### i love vista
 
 [Merkür Kolonisi](https://www.merkurkolonisi.tk)
